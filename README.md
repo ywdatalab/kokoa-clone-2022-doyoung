@@ -1,3 +1,3 @@
 # KOKOA-CLONE-2022-DOYOUNG
 
-화이팅
+무야호~
